@@ -1,2 +1,2 @@
 # celdeveloper.github.io
-The website for Rose Wealth Management
+My name is Celeste from Chicago!
